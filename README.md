@@ -1,1 +1,1 @@
-Thank You for Download this Mod! You can click on one of this Vehicle .zip file, go to the three dots on the top right corner and download it. THE COLOR-CONFIGURATION FOR THE "MAN" DOESN'T WORK!!! THE TURN LIGHTS, THE "DAMAGE" AND THE WETNESS ON THE VEHICLES ALSO DONT WORK CORRECTLY!!! I also maybe wont fix this buggs because I don't know how ;)
+Thank You for Download this Mod! You can click on one of this Vehicle .zip file, go to the three dots on the top right corner and download it. THE TURN LIGHTS DONT WORK CORRECTLY!!!
